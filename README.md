@@ -1,6 +1,6 @@
 ### Boas vindas ao meu perfil
 
-_Meu nome é VitóriaFernanda_
+_Meu nome é Vitória Fernanda_
 
 
 • Estou estudando no Alura📑
