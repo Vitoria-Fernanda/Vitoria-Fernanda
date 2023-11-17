@@ -8,4 +8,6 @@ _Meu nome é Vitória Fernanda_
 • Utilizo esse espaço para minha organização e compartilhamento dos meus projetos desenvolvidos 🥇
 ![](https://petitgato.com.br/img/webp/gatos-persas-em-sao-paulo-img-3780.webp)
 
+![](https://media.tenor.com/U28V2bPGlgUAAAAd/gato-sorrindo.gif)
+
 Espero que gostem!
